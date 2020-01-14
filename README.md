@@ -11,4 +11,4 @@
   ### 别问，问就是不会
   [群聊](https://jq.qq.com/?_wv=1027&k=5koWsNn)
   ### 小程序内体验
-  ![alt QQ小程序](https://www.zxit.top/upload/attach/202001/1_BXQEESMGEZKA62G.png)
+  ![QQ小程序](https://www.zxit.top/upload/attach/202001/1_BXQEESMGEZKA62G.png)
